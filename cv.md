@@ -1,4 +1,7 @@
 # Katarzyna Bialorusinka
+
+![my photo](C:\Users\User\Desktop\Программы\images (1).jpg)
+
 +48730182731
 
 Reliable and enthusiastic account manager with 3 years of experience in the banking industry. Successfully acquired new clients and achieved the average of 112% on monthly goals. Also recognized for customer retention and strong communication skills. Currently, looking for a job as a key account manager in the Fidelity Bank.
