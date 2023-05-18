@@ -1,6 +1,6 @@
 # Katarzyna Bialorusinka
 
-![my photo](C:\Users\User\Desktop\Программы\images (1).jpg)
+![images (1)](https://user-images.githubusercontent.com/82154969/235379628-1c8544f9-73db-4780-b0c0-d8f9814bc1d6.jpg)
 
 +48730182731
 
